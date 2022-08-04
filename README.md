@@ -1,2 +1,4 @@
 # oxy-bots
-Oxy apimizin https://discord.gg/400 sunucusunda kullandığı botu Saat 17.00 gibi burda olur starlayın GökwOuts ❤️ Passanger
+Salak Adonis denilen it oxyin https://discord.gg/400 swsindeki botunu it gibi atti kimse bas kas göz ;DDD
+ Saat 17.00 gibi burda olur starlayın 
+GökwOuts ❤️ Passanger
